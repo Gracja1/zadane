@@ -1,0 +1,2 @@
+# zadane
+podstawy
